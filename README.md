@@ -7,3 +7,4 @@
 - 💬 Ask me about ... ologs
 - 📫 How to reach me: ... cs@osequi.com, https://ologeditor.bsky.social/ 
 - ⚡ Fun fact: ... I predict the future ... http://metamn.io/gust/
+- ◀️ Previously: http://metamn.io/ 
